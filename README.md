@@ -1,1 +1,0 @@
-# 3d-example-project4lsiet
